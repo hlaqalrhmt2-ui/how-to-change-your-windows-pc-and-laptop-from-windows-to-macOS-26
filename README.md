@@ -2,7 +2,9 @@
 
 the easiest way to change your pc and laptop from windows to macOS 26
 
+(please Follow the steps below to get your Mac or MacOS working properly.  
 
+Follow 1920yz on Instagram and thats my account url https://www.instagram.com/1920yz/
 
 
 
